@@ -1,6 +1,6 @@
 # bywave官网地址
 
-最新地址：[by.ltd](https://u.by.ltd/aff.php?aff=27605)
+最新地址：[by.ltd](https://u.bws.lol/aff.php?aff=27605)
 
 ## bywave机场简介
 
